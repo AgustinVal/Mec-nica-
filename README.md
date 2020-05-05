@@ -1,2 +1,2 @@
 # Mec-nica-
-Material opcional para chicas y chicos de mecánica (-~°o°)-~
+Material opcional para chicas y chicos de mecánica (--°o°)--
